@@ -84,5 +84,5 @@ It suppose to be possible if we get the approval and licenses from respective ho
 
 ## Feedback
 
-If you have any feedback, please reach out to us at chetansanap0900@gmail.com && instagram :- @chetan_sanap24
+If you have any feedback, please reach out to us at chetansanap0900@gmail.com && instagram :- @chetu_sanap24
 
